@@ -1,4 +1,4 @@
-# 🧙‍♂️ Welcome, Traveler! I’m @SullyGreene — Headmaster of the Wizard's Academy 🎓✨
+# 🧙‍♂️ Welcome, Traveler! I’m @SullyGreene 👋
 
 > “Magic is just code we haven’t mastered yet.” – Me, probably
 
